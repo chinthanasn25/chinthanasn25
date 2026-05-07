@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-currently Student 
+currently Student (Enginnering)
